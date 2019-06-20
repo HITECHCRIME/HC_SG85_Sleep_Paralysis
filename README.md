@@ -29,7 +29,7 @@ make them grow despite
 shouldn’t i care for the abused
 care for the souls of the weak
 make them grow despite
- their downward peak
+their downward spiral peak
 
 doing what you’d not do, seeing
 flashes of light, you blinded and shining
