@@ -49,3 +49,5 @@ card tricks not for the weak
 card tricks not for the weak 
 can’t play with illusion
 when i just want to finally sleep
+
+-  higher tones!
